@@ -1,6 +1,6 @@
-hi :) its me, block! also no i will not be using your copiolot, microsoft
+I have done nothing of note
 
-and uh hi again to those people who visit my profile
+Tried making pull requests, to learn how gh works and both times I failed miserably 
 
+Please don't laugh at me
 
-Creator of SHUT UP Dictio and the re-uploader of win 98 simulator
