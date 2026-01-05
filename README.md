@@ -1,6 +1,3 @@
-I have done nothing of note
+she/her
 
-Tried making pull requests, to learn how gh works and both times I failed miserably 
-
-Please don't laugh at me
-
+silly tgirl who makes silly things :3 
